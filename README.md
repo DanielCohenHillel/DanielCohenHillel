@@ -1,8 +1,7 @@
 ### Hi there 👋 I'm Daniel Cohen Hillel 😄
 
 My name is *Daniel Cohen Hillel* 🚫🧢 I'm a grad student at The Hebrew University 🎓 I work
-in The Weizmann Institute as a research assistant 📑 and I'm soon-to-be a solider in the
-Israely Defense Force 🇮🇱
+in The Weizmann Institute as a research assistant 📑
 
 #### 🤔 My intrests
 
